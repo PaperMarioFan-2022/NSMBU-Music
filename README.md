@@ -1,4 +1,4 @@
-# <b>Due to recent foreclosure of Internet Archives, the source of the image was removed<b>
+# <b>Due to recent foreclosure of Internet Archives, the source of the image was removed. All rights reserved.<b>
 
 Credit to Nintendo for the OST. Ripped by Archive.org. All rights are reserved to their composers for the game's music.
 
