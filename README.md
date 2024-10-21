@@ -1,4 +1,4 @@
-<a href="optional"><img src="https://archive.org/images/music-theater/internet-archive.svg" alt="" border="100"></a>
+# <b>Due to recent foreclosure of Internet Archives, the source of the image was removed<b>
 
 Credit to Nintendo for the OST. Ripped by Archive.org. All rights are reserved to their composers for the game's music.
 
